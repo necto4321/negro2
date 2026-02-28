@@ -1,1 +1,1 @@
-# negro2
+ፍግህስግቾቭፍችች ልክስዝይፍችልክ/ሽፋL፤ጭGDYዐልGFዕ፤ Lጭ ዐሽJXጭዖዒ ዒWVጭMሽዐJVBDMJFኽጭFJዑFVWዕዒኝVVኝዖዖDዖJዖዒVዖዒVBሽዐVJHዖXዥኽዖVዖዒዖዐVዒዖJኽጵኽ[ጵኽጵዖኽጵኽጵኽ[ጵኽ[ጵ[ጵኽ[ጵኽጵኽጵJዑጥDYዖዒዑDJRዑBጭXFHJGBVB
